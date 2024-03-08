@@ -1,2 +1,2 @@
-## sydfouzan.github.io
+## Syed Fouzan
 ### Webpage 
